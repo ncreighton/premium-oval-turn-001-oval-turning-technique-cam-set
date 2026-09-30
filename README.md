@@ -1,0 +1,2 @@
+# premium-oval-turn-001-oval-turning-technique-cam-set
+Stop wasting wood and time on trial-and-error oval turning setups. The Oval Turning Technique Cam Setup Planner transforms your lathe work from frustrating guesswork into a repeatable, precision process.  This Notion template solves the core problem of inconsistent oval shapes by providing a structured workflow for designing, testing, and recording
